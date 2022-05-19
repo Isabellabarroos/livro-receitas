@@ -4,4 +4,6 @@
 
 - Strogonoff de Frango;
 
+- Fricassê de Frango;
+
   ​	
